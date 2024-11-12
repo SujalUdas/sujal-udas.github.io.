@@ -1,4 +1,3 @@
-# sujal-udas.github.io.
 # Sujal Udas
 
 [Email](mailto:sujal.udas@student.sl.on.ca) | [LinkedIn](https://www.linkedin.com/in/sujaludas) | +1 437-669-2380
